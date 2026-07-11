@@ -13,7 +13,7 @@ The four vampires all sat at the table together.
 "Ok." Emma sat down her empty glass. "It started at home, before we left for vacation."
 
 ![](06-20-18_12-23-06%C2%A0AM.png)
-"I started getting this weird pain in my stomach, and feeling like I was going to be sick. At first I didn't say anything because I didn't think it was a big deal; I just thought maybe it had weithered. I mean, yeah, that did seem a little weird, but nothing too bad."
+"I started getting this weird pain in my stomach, and feeling like I was going to be sick. At first I didn't say anything because I didn't think it was a big deal; I just thought maybe it had withered. I mean, yeah, that did seem a little weird, but nothing too bad."
 
 "But then it just got worse, and I didn't want to worry anyone." Emma paused to get the words. "When we got here, trying to drink a blood marry made me feel so sick, and sent me double over in pain. It's been so bad that I haven't been drinking much, but still I've gained this weight. Which makes no sense. I know I can't be pregnant, I haven't you know..." Emma let it trail off.
 
@@ -23,7 +23,7 @@ Anne spoke up, "What about when you were abducted? You said yourself it was rath
 
 ![](06-20-18_12-26-17%C2%A0AM.png)
 
-"I don't know; that's all so fuzzy." Emma guestered with her hand near her head. "Are you saying they made me pregnant? Or something else?"
+"I don't know; that's all so fuzzy." Emma gestured with her hand near her head. "Are you saying they made me pregnant? Or something else?"
 
 ![](06-20-18_12-27-37%C2%A0AM.png)
 "I mean, we're vampires, and you were a ghost." Anne said.
@@ -140,6 +140,7 @@ ok very strange
 
 ![](06-20-18_10-48-57%C2%A0AM.png)
 Check again plz
+
 ![](06-20-18_10-51-18%C2%A0AM.png)
 ![](06-20-18_10-51-34%C2%A0AM.png)
 Definately an alien, doing good, and has more time to go.
@@ -161,20 +162,18 @@ one heck of a kick
 ![](06-20-18_4-34-56%C2%A0PM.png)
 *'Yowzers, this one really **can** kick!'*
 
-<!-- ![](06-20-18_7-05-07%C2%A0PM.png) -->
-![](06-20-18_7-07-59%C2%A0PM.png)
-Hey guys
+![](06-20-18_7-05-07%C2%A0PM.png)
+
 ![](06-20-18_7-27-40%C2%A0PM.png)
 I think it's time
 
 So they headed home.
 
 ![](06-20-18_8-31-07%C2%A0PM.png)
-From the moment Brenda was born, Emma felt nothing but love for this little life. And promised herself that she would protect her daughter.
+From the moment Brenda was born, Emma promised herself that she would would do whatever it took to protect her daughter. 
+
 ![](06-20-18_11-13-38%C2%A0PM.png)
 She needed some time to recover, but stayed near her new daughter.
 
-![](06-20-18_11-34-20%C2%A0PM.png)
-They spent some time together as a family.
 ![](06-20-18_11-42-52%C2%A0PM.png)
-Anne met her niece, and Cassandra was nearby.
+Anne met her niece Brenda, with her daughter Cassandra was nearby.

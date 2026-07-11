@@ -1,14 +1,4 @@
-(this is in no paticular order... just some random sims being sims crap for at least some of it.)
-
-![](05-16-22_10-29-41%C2%A0PM.png)
-
-Emma tried eating bloodfruit salad for the first time since her pregnancy...
-
-![](05-17-22_7-29-11%C2%A0AM.png)
-you're wearing snow boots..... srsly??
-
-![](06-02-18_12-31-06%C2%A0PM.png)
-Just a family of vampires chilling
+(this is in no particular order... just some random sims being sims crap for at least some of it.)
 
 ![](06-02-18_2-20-46%C2%A0PM.png)
 
@@ -17,9 +7,6 @@ Remembering old times after a romance festival
 
 ![](06-03-18_10-59-17%C2%A0PM.png)
 Fused?
-
-![](06-03-18_6-37-54%C2%A0AM.png)
-Who needs shoes?
 
 ![](06-04-18_1-58-25%C2%A0PM.png)
 Just like old times.
@@ -42,8 +29,8 @@ Ok this time it's totally my fault.
 ![](06-06-18_11-19-50%C2%A0AM.png)
 Coffins are healing for vampires.... so......
 
-![](06-06-18_11-42-24%C2%A0AM.png)
-Out of hibernation on her
+<!-- ![](06-06-18_11-42-24%C2%A0AM.png) -->
+<!-- Out of hibernation on her -->
 
 ![](06-06-18_12-10-13%C2%A0PM.png)
 The vase that finished the collection :)
@@ -62,9 +49,6 @@ Back from the opera and heavily pregnant.
 
 ![](06-14-18_10-55-34%C2%A0AM.png)
 As the family grows...
-
-![](06-14-18_9-42-45%C2%A0AM.png)
-This is how classy we are -.-
 
 ![](06-19-18_1-52-27%C2%A0PM.png)
 I did nothing to cause this......
@@ -106,7 +90,7 @@ lol, their faces. Anne: omg, could she be more annoying?
 Anne: I promise, it's not as bad as you're making it out to be. No where near as bad. I'm sure you'll be fine.
 
 ![](06-19-18_10-36-22%C2%A0PM.png)
-Anne:I know you'll be fine, either way.
+Anne: I know you'll be fine, either way.
 Emma: Well that makes one of us.
 
 ![](06-19-18_10-40-14%C2%A0PM.png)
@@ -146,9 +130,6 @@ Dance Off!
 
 ![](06-20-18_10-48-57%C2%A0AM.png)
 Emma: Can you check on my baby again?
-
-![](06-20-18_11-11-30%C2%A0PM.png)
-I have no words. No words. You better not come back knocked up.....
 
 ![](06-20-18_11-42-52%C2%A0PM.png)
 Daughters and granddaughters.

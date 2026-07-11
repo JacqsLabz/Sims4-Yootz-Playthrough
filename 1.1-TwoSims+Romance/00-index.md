@@ -168,11 +168,11 @@ Jane gave her a peck on the cheek.
 
 ----
 
-"Hey there sweeite," Jane came around the couch, "how you doing?"
+"Hey there sweetie," Jane came around the couch, "how you doing?"
 
 ![](12-22-16_6-50-48%C2%A0PM.png)
 
-"Better, I think." Sara tried a tenative smile, "How about you?"
+"Better, I think." Sara tried a tentative smile, "How about you?"
 
 ![](12-22-16_6-51-01%C2%A0PM.png)
 

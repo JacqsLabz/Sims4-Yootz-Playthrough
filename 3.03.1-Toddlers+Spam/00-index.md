@@ -41,13 +41,15 @@ Everyone together
 
 ----
 
-Back home
+Back home, 
 
-![](06-28-18_1-07-41%C2%A0PM.png)
+![](06-28-18_1-07-41%20PM.png)
 
-Cassandra's b-day
+Cassandra (Cass) had her birthday
 
 ![](10-14-18_12-50-53%C2%A0AM.png)
+
+ and became a child. 
 
 ----
 
@@ -55,10 +57,10 @@ Cassandra's b-day
 Good times around the camp fire
 
 ![](11-10-18_3-19-04%C2%A0PM.png)
-Helping Cassie with school project
+Helping Cass with school project
 
 ![](08-31-20_7-28-48%C2%A0AM.png)![](11-10-18_6-19-10%C2%A0PM.png)
-Sara & Jane
+Sara & Jane being cute as always. 
 
 ![](08-31-20_7-40-53%C2%A0AM.png)
 ![](05-06-22_5-37-06%C2%A0AM.png)![](05-06-22_12-12-19%C2%A0PM.png)
@@ -79,14 +81,23 @@ Cute plating in tent
 ![](05-15-22_8-08-27%C2%A0PM.png)
 ![](05-15-22_8-12-08%C2%A0PM.png)
 ![](05-15-22_8-08-44%C2%A0PM.png)
-Sara and Cassandra tried snow boarding. Cassie was a natural, Sara less so.
+Sara and Cassandra tried snow boarding. Cass was a natural, Sara less so.
 
 ![](05-16-22_10-11-12%C2%A0PM.png)
 ![](05-16-22_10-16-49%C2%A0PM.png)
 Egg day
 
-Emma eats blood fruit salad
+![](05-16-22_10-29-41%C2%A0PM.png)
+Emma tried eating blood fruit salad for the first time since her pregnancy, and found it went down just fine. 
 
-Brenda b-day to child
+![](05-17-22_9-33-15%20AM.png)
+Brenda's birthday to a child
 
-Shower & sauna
+![](05-20-22_5-30-08%20AM.png)
+Emma giving (disguised) Brenda a hug
+
+![](05-25-22_10-51-37%20AM.png)
+Emma, Cass, & Brenda enjoying the sauna 
+
+![](05-25-22_10-46-09%20AM.png)
+Sara & Jane making a little steam room of their own. 
