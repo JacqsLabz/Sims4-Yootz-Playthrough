@@ -1,10 +1,10 @@
 This story begins way back in 2016, with two roommate sims when their friendship became more.
 
-![](05-22-22_1-48-25%C2%A0AM.png)
+<!-- ![](05-22-22_1-48-25%C2%A0AM.png) -->
 
-<!-- ![](05-21-22_8-24-46%C2%A0AM.png) -->
+![](05-21-22_8-24-46%C2%A0AM.png)
 
-Sara Yootz, always the hot-head;
+Sara Yootz, the athletic hot-head;
 
 <!-- ![](05-21-22_8-27-15%C2%A0AM.png) -->
 
@@ -42,7 +42,7 @@ Sara supressed a giggle.
 
 One morning, while Jane was in the shower and Sara was doing her morning workout, she decided to surprise Jane again.
 
-<!-- One morning not long after their date, it was during Sara's usual ealy morning workout -->
+<!-- One morning not long after their date, it was during Sara's usual early morning workout -->
 
 <!-- ![](12-22-16_6-15-27%C2%A0PM.png) -->
 
@@ -92,7 +92,7 @@ The next day Sara had off work happened to be a day Jane had to work. So, Sara d
 
 ![](12-22-16_6-34-09%C2%A0PM.png)
 
-"You aren't getting the better of me!" was one of the many things she yelled in the empty house, pushing herself harder and harder to try to lose the extra cub from her middle.
+She was enjoying blowing off some extra steam, yelling at the punch bag. 
 
 ![](12-22-16_6-35-20%C2%A0PM.png)
 
@@ -108,7 +108,7 @@ She didn't know what think as she tried to clean up the mess.
 
 ----
 
-It turned out to be the first time of many. So, Sara tried chaning a few things. She dropped the protien drinks, and generally tried to be easier on herself. But it didn't seem to make any difference.
+It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein shakes & energy drinks, and generally tried to be easier on herself. But it didn't seem to make any difference.
 
 ![](12-22-16_6-48-29%C2%A0PM.png)
 
@@ -246,7 +246,7 @@ Sara's grin grew as she looked deep in Jane's eyes and gave a little nod.
 
 ![](12-22-16_7-18-33%C2%A0PM.png)
 
-Sara sat with her. "Good, it really helps to move my body around, get the muscles working."
+Sara sat with her. "Good, thanks to some tips from Don. It really helps to move my body around, get the muscles working."
 
 ![](12-22-16_7-18-48%C2%A0PM.png)
 
@@ -272,11 +272,11 @@ Before she knew it, her belly had grown even larger.
 
 To the point that swimming was just about the only form of exercise she could do anymore.
 
-![](12-22-16_7-54-53%C2%A0PM.png)
+<!-- ![](12-22-16_7-54-53%C2%A0PM.png) -->
 
 ![](12-22-16_7-55-34%C2%A0PM.png)
 
-But Jane helped her through it.
+Jane's support helped a lot. 
 
 ----
 
