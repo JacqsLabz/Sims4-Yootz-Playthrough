@@ -138,6 +138,6 @@ Plus, Emma and Anne became best friends.
 
 ----
 
-I didn't get an pictures for it, but the father of Lilith's unborn child is Alexandra Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, in a while.
+I didn't get an pictures for it, but the father of Lilith's unborn child is Alexandra Goth, married and changed his name to Alexander Bheeda (when he married Jayceon Bheeda, son of Arun Bheeda and Jesminder Bheeda, who Sara later turns into a vampire). Lilith named her daughter Kaylie Vatore. And Kaylie comes up again later, when she's grown up a bit.
 
-Look things got weird in this save. Vlad birthed a son with Morter Goth before Morter died, and I had NOTHING to do with that, ok? Yes I put in MC CC, but I didn't tell it to do that. 
+*(Look things got weird in this save. Vlad birthed a son with Morter Goth before Morter died, and I had NOTHING to do with that, ok? Yes I put in MC CC, but I didn't tell it to do that.)*

@@ -171,7 +171,7 @@ Sara: "That's a kick!"
 Emma: "It must of have been the aliens!"
 
 ![](06-20-18_12-38-47%C2%A0AM.png)
-Jane: "Sarila's right, that feels like you're going to have a little one of your own."
+Jane: "Sara's right, that feels like you're going to have a little one of your own."
 
 ![](06-20-18_7-14-15%C2%A0PM.png)
 Emma: "You're sure it's supposed to hurt this much?"
@@ -181,4 +181,4 @@ Sara: "Yeah, it does."
 Sara: "You're doing great Emma."
 
 ![](06-20-18_7-20-11%C2%A0PM.png)
-Sarila: "You'll be ok, just breath honey."
+Sara: "You'll be ok, just breath honey."

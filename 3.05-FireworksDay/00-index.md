@@ -1,6 +1,6 @@
 
 ![](06-29-26_2-06-19%20PM.png)
-Basement water fun for Fireworks Day
+Basement water fun for vampires Fireworks Day (a holiday in my game based on US's July 4th with the name coming from the RvB PSA). 
 
 ![](06-29-26_2-15-29%20PM.png)
 Anne took the girls out in the yard for their water fun. 
@@ -62,26 +62,26 @@ For a few moments, no one said anything. <!-- ![](07-07-26_11-03-30%20PM.png) --
 Sara broke the silence, "Well, we all knew this might happen."
 
 ![](07-07-26_11-04-13%20PM.png)
-Anne: The more I think about it, the more I don't see a way to balance what they both need. 
+Anne: The more I think about it, the more I don't see a way to balance what they both need. Clara needs somewhere like Ravenwood, where her fangs won't be an issue. But Cass... 
 
 <!-- ![](07-07-26_11-22-22%20PM.png) -->
 <!-- ![](07-07-26_11-29-04%20PM.png) -->
 <!-- ![](07-11-26_10-26-37%20PM.png) -->
 <!-- ![](07-06-26_8-16-25%20PM.png) -->
 
-Sara: Yeah, Cass hasn't shown any interest in the occult. She loves things like snowboarding. 
+Sara: Cass hasn't shown any interest in vampires and ghosts; she loves things like camping. 
 
 ![](07-11-26_10-21-53%20PM.png)
 Jane: If I took the cure, I could raise Cass. 
 
-There was a pause. 
+There was a pause. Sara just stopped. She'd learned the recipe for a drink to cure vampirism, but honestly had not expected to use it. 
 
 Jane: She loves the outdoors. If I didn't burn up in the sun, I could give her a normal life. So she'll be happy. 
 
 ![](07-11-26_11-12-14%20PM.png)
-Sara was willing to bet Jane was thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
+Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
 
-Jane: Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. 
+"Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. We could go back to being immortal together, when she's old enough." Jane put her left hand on Sara's right under the table. 
 
 Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara was honest things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. 
 

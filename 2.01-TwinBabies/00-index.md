@@ -15,7 +15,7 @@ and helping care for the girls.
 
 ![](12-23-16_6-03-46%C2%A0PM.png)
 
-It wasn't long before Sara recovered enough to return to work and get back to her more normal workout, instead of only swimming in the pool.
+Once Sara took some time to recover, she returned to work and gently eased back into her upping the intensity of her workouts. 
 
 ![](12-23-16_6-09-33%C2%A0PM.png)
 
@@ -23,7 +23,7 @@ She found she liked breast feeding their girls,
 
 ![](12-23-16_7-30-21%C2%A0PM.png)
 
-and that her full muscle tone returned pretty quickly.
+and that Don had been right: most of her strength & endurance returned pretty quickly.
 
 ![](12-23-16_6-20-20%C2%A0PM.png)
 

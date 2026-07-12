@@ -12,11 +12,11 @@ Sara Yootz, the athletic hot-head;
 
 and Jane Witt, the creative soul.
 
-They had been living together in the small Daisy Hovel for some time. One evening Sara had finished her workout and Jane was getting ready for bed, when Sara decided to take the advice from her friend Don from the gym & make the first move.
+They had been living together in the small Daisy Hovel for some time, and as that time passed, Sara had found herself slowing catching feelings for Jane. When she asked her friend at the gym, Don, for some advice. he recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
 
 ![](12-22-16_6-21-05%C2%A0PM.png)
 
-It definately surprised Jane, but
+It definitely surprised Jane, but
 
 ![](12-22-16_3-48-25%C2%A0PM.png)
 
@@ -40,15 +40,10 @@ Sara supressed a giggle.
 
 ----
 
-One morning, while Jane was in the shower and Sara was doing her morning workout, she decided to surprise Jane again.
-
-<!-- One morning not long after their date, it was during Sara's usual early morning workout -->
-
-<!-- ![](12-22-16_6-15-27%C2%A0PM.png) -->
-
-<!-- that she decided to surprise Jane again. -->
+One morning, after her normal workout, 
 
 ![](12-22-16_4-47-03%C2%A0PM.png)
+Sara decided to surprise Jane again.
 
 ![](12-22-16_4-47-43%C2%A0PM.png)
 
@@ -70,29 +65,29 @@ They went on another date at the same club as before to celebrate.
 
 ----
 
-For a time, normal life roled on, spending time together, at their jobs, and pursuing their respective hobbies.
+For a time, normal life rolled on, spending time together, at their jobs, and pursuing their respective hobbies.
 
 ![](12-22-16_5-29-37%C2%A0PM.png)
 
-Sara got more tips from Don, including protien shakes.
+Sara got more tips from Don, including protein shakes & energy juice.
 
 ----
 
 ![](12-22-16_6-15-41%C2%A0PM.png)
 
-"Hey Jane, does it look like I've put on any weight to you?" Sara asked inbetween breathes as she ran on the tredmil.
-
-"I think you look just prefect, my love."
+Sara started noticing her endurance was off, and her joint felt different. Made her wonder as to why during her jogs on the treadmill sometimes. 
 
 ![](12-22-16_6-19-08%C2%A0PM.png)
 
+When she wasn't distracted that is. Jane's affection was so warm. 
+
 ----
 
-The next day Sara had off work happened to be a day Jane had to work. So, Sara decide to use the time to get in some extra workouts. She pushed herself as hard as she could.
+Whenever Sara had the day off work and Jane didn't, Sara got in some extra workouts.
 
 ![](12-22-16_6-34-09%C2%A0PM.png)
 
-She was enjoying blowing off some extra steam, yelling at the punch bag. 
+One such day, she was enjoying blowing off some extra steam, yelling at the punch bag. 
 
 ![](12-22-16_6-35-20%C2%A0PM.png)
 
@@ -108,15 +103,15 @@ She didn't know what think as she tried to clean up the mess.
 
 ----
 
-It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein shakes & energy drinks, and generally tried to be easier on herself. But it didn't seem to make any difference.
+It turned out to be the first time of many. So, Sara tried changing a few things. She dropped the protein shakes & energy drinks, and tried the whole 'rest & fluids' thing for a while. But it didn't seem to make any difference. 
 
 ![](12-22-16_6-48-29%C2%A0PM.png)
 
-''*When am I going to get over this... whatever it is?'* she found herself wondering.
+''*When am I going to get over this... whatever it is?'* she found herself wondering when it had lasted longer than a typical stomach bug. 
 
 ----
 
-She even skipped her morning workouts sometimes.
+Some mornings, Sara has tea instead of working out. 
 
 ![](12-22-16_7-05-47%C2%A0PM.png)
 
@@ -134,11 +129,11 @@ The food was great, but it still went down rough for Sara. She managed to keep i
 
 "Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant."
 
-"Wait," Sara closed her eyes, "is that eve possible? But we're... How would..."
+"Wait," Sara closed her eyes, "is that eve possible? But we were careful...  and I..."
 
 ![](12-22-16_6-32-20%C2%A0PM.png)
 
-"I'm not sure, but it would explain a lot."
+"I know, but it would explain a lot."
 
 "I need some time to think..." Sara stood. "Like, I need a minute."
 
@@ -152,7 +147,7 @@ Jane waited a short while, before she softly knocked on the door and came in to 
 
 ![](12-22-16_6-54-18%C2%A0PM.png)
 
-"But this is not something I ever though I'd have to... I didn't think I even could get... like with anyone." Sara couldn't even put all the words together.
+"But this is not something I ever though I'd... I didn't think I even could get... like with anyone." Sara couldn't even put all the words together.
 
 ![](12-22-16_6-54-33%C2%A0PM.png)
 
@@ -168,6 +163,8 @@ Jane gave her a peck on the cheek.
 
 ----
 
+Soon after, Sara took a pregnancy test, that came out positive. After, she came to sit out on the couch.
+
 "Hey there sweetie," Jane came around the couch, "how you doing?"
 
 ![](12-22-16_6-50-48%C2%A0PM.png)
@@ -178,7 +175,7 @@ Jane gave her a peck on the cheek.
 
 "Honestly, I'm so excited that we're going to be parents. Have you thought about any names?"
 
-"I haven't, not yet anyway."
+"I haven't, not yet anyway." Sara was caught off guard.
 
 ----
 
@@ -198,25 +195,33 @@ Sara swallowed and waited to see what her stomach was going to do. Thankfully, t
 
 ![](12-22-16_7-35-37%C2%A0PM.png)
 
-"Honestly that's probably the worst part; it's just like how am I supposed to get used to this, you know? I can't eat hardly anything; my endurance is totally shot." Sara guestered with her arm.
-
-"Give it time, I'm sure you'll get it back afterwards."
+"Yeah, apparently it's totally normal to just feel sick like, the entire time." Sara tried to breath and she turned back to the TV. "I can't even breath right. It's just hard. I haven't been able to workout like I'm used to, and it's been putting me on edge. Sorry." She hadn't felt like this since before she'd taken up running and exercising as a teen. 
 
 ![](12-22-16_7-35-00%C2%A0PM.png)
 
-"Yeah, I guess you're right." Sara turned to the TV. "Just pisses me off."
+"You know," Don said, "there's a few things, they call them modifications, I've heard about that might help. I could coach you through trying them? Might help you still burn off that anger." 
 
-"I bet it isn't as bad as you say."
-
-"Is that a challange?" She looked at him out of the side of her eye.
-
-"Go get your gym clothes and get on that tredmil."
+Sara doubted it, but, "At this point, I'll try anything. I feel like I'm crawling out of my skin." She went to change then Don had her get on the treadmill. 
 
 ![](12-22-16_7-38-57%C2%A0PM.png)
+
+"Just a few more rep's, you'll get used to it." Don coached Sara through a less intense version of part of her usual workout. 
+
+----
+
+As Sara's belly continued to grow, 
+
+![](12-22-16_7-08-48%C2%A0PM.png)
+
+the nausea was just as persistent. But Sara tried to remind herself it was only temporary. 
 
 ----
 
 ![](12-22-16_7-42-16%C2%A0PM.png)
+
+Though some nights, Sara was up for other reasons. 
+
+----
 
 Then the next morning when they were getting ready for the day...
 
@@ -236,31 +241,21 @@ Then the next morning when they were getting ready for the day...
 
 ![](12-22-16_7-01-45%C2%A0PM.png)
 
-Sara's grin grew as she looked deep in Jane's eyes and gave a little nod.
+Sara's grin grew as she looked deep in Jane's eyes and gave a little nod. It helped seeing Jane so passionately excited, seeing her happy. Also, the look in her wife's eyes reminded Sara why she had choose to go through with this. It was hard not feeling comfortable in her own skin, but this was their chance to start a family. 
 
 ----
 
 ![](12-22-16_7-17-06%C2%A0PM.png)
 
-"How was your workout?" Jane asked when Sara got off the tredmil.
+"How was your workout?" Jane asked as Sara got off the treadmill.
 
 ![](12-22-16_7-18-33%C2%A0PM.png)
 
-Sara sat with her. "Good, thanks to some tips from Don. It really helps to move my body around, get the muscles working."
+Sara sat with her. "Good, thanks to some coaching from Don. His advice was really solid, and working out some is really helping." Her emotions had been less on edge recently, which was a win. 
 
 ![](12-22-16_7-18-48%C2%A0PM.png)
 
 ![](12-22-16_7-18-39%C2%A0PM.png)
-
-<!-- ----
-
-![](12-22-16_7-08-48%C2%A0PM.png)
-
-The neasuea was still presistent,
-
-![](12-22-16_7-21-14%C2%A0PM.png)
-
-But Sara tried her best to eat what she could for the sake of both herself and the baby.  -->
 
 ----
 
@@ -271,8 +266,6 @@ Before she knew it, her belly had grown even larger.
 ![](12-22-16_7-47-30%C2%A0PM.png)
 
 To the point that swimming was just about the only form of exercise she could do anymore.
-
-<!-- ![](12-22-16_7-54-53%C2%A0PM.png) -->
 
 ![](12-22-16_7-55-34%C2%A0PM.png)
 

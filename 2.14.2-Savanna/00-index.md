@@ -136,6 +136,6 @@ Her daughter, Mckinley, was born.
 
 ----
 
-Eventually, they end up as:
+After some time:
 
-Savanna married to Genji, with their duaghter Mckinley a teenager, and their two sons Demarus (toddler) and Brenton (infant). As a teenager, Mckinley hooked up with their married landlord, and had a daughter, Gracie (who's actually slightly older than Demarus).
+Savanna married Genji, the guy who's Mckinley's father. As a teenager, Mckinley hooked up with their married landlord, had a son named Grant. Then Savanna had a son named Bentley (Ben). Grant is a bit older than Ben. 

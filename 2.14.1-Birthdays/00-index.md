@@ -1,3 +1,4 @@
+
 ![](05-30-18_8-25-01%C2%A0AM.png)
 
 Anne grew up into a teenager.
@@ -8,7 +9,7 @@ Anne grew up into a teenager.
 
 ![](05-30-18_8-51-24%C2%A0AM.png)
 
-And after some lessons from her parents, tried drinking blood for her first time.
+And after some lessons from her parents (well, ok, Sara), tried drinking blood for her first time.
 
 ![](05-30-18_8-55-20%C2%A0AM.png)
 
