@@ -75,7 +75,7 @@ Sara got more tips from Don, including protein shakes & energy juice.
 
 ![](12-22-16_6-15-41%C2%A0PM.png)
 
-Sara started noticing her endurance was off, and her joint felt different. Made her wonder as to why during her jogs on the treadmill sometimes. 
+Sara started noticing her endurance was off, and her joints felt different. Sometimes she wondered about why during her jogs on the treadmill. 
 
 ![](12-22-16_6-19-08%C2%A0PM.png)
 
@@ -129,11 +129,11 @@ The food was great, but it still went down rough for Sara. She managed to keep i
 
 "Still feeling under the weather, dear?" Jane sat back down across from Sara. "Look, I've been kind of wondering lately; what if you're pregnant."
 
-"Wait," Sara closed her eyes, "is that eve possible? But we were careful...  and I..."
+"Wait," Sara closed her eyes, "But we were careful...  and I..."
 
 ![](12-22-16_6-32-20%C2%A0PM.png)
 
-"I know, but it would explain a lot."
+"I know, but it would explain a lot." Jane shrugged.
 
 "I need some time to think..." Sara stood. "Like, I need a minute."
 
@@ -179,7 +179,7 @@ Soon after, Sara took a pregnancy test, that came out positive. After, she came 
 
 ----
 
-Taking it easy on herself included less time at the gym. So Sara invited over her buddy Don so they could catch up some.
+Taking it easy on herself included less time at the gym. So Sara invited over her buddy Don so they could catch up some while she had some tea. 
 
 ![](12-22-16_7-31-53%C2%A0PM.png)
 
@@ -191,7 +191,7 @@ Bonding with her friend helped Sara feel like herself.
 
 "You ok there?" Don asked.
 
-Sara swallowed and waited to see what her stomach was going to do. Thankfully, the feeling passed pretty quickly this time. "Yeah, apperently it's totally normal to just feel sick like, the entire time."
+Sara swallowed and waited to see what her stomach was going to do. Thankfully, the feeling passed pretty quickly this time. 
 
 ![](12-22-16_7-35-37%C2%A0PM.png)
 
