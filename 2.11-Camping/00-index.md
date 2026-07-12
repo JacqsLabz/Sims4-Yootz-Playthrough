@@ -69,10 +69,12 @@ But Sara saw her, recongized that type of look from the mirror. "Dear, stop, bef
 
 Jane let Savanna walk past.
 
-"I know it's hard." Sara said, "but breath."
+"I know it's hard." Sara said, "but breathe."
 
 ![](12-23-17_11-09-08%C2%A0PM.png)
 
-Jane colapsed on the couch, defeated. "We're losing our other little girl."
+Jane collapsed on the couch, deflated. "We're losing our other little girl."
 
-"Look, with how old she is, short of mind control, we can't stop her. I don't want to lose them either, but we can't protect them from everything."
+"Look, with how old she is, short of mind control, we can't stop her." Sara reached for Jane's hand. "If we give her space and enough time, she'll cool down. When she does, I bet she'll come back."
+
+They agreed to start setting aside money for when that happened. 

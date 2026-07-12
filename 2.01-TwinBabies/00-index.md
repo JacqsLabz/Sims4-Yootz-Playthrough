@@ -1,7 +1,7 @@
 
 <!-- ![](12-23-16_5-09-12%C2%A0PM.png) -->
 
-<!-- Maybe something about Jane being like thank you, I know that was hard for you. And Sara being confused because while it was hard to carry twins, she choose to do it. Sure it was a painful uncomfortable challenge, but she wanted them to start a family together. -->
+<!-- Maybe something about Jane being like thank you, I know that was hard for you. And Sara being confused because while it was hard to carry twins, she choose to do it. Sure it was a painful uncomfortable challenge, but she wanted them to start a family together, and maybe she didn't know if she could get pregnant again. Like getting pregnant once is a fluke, not proof that she will ever again. --> 
 
 Twins made money tight for a while, but they had each other and their girls.
 
