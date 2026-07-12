@@ -76,10 +76,14 @@ Jane: If I took the cure, I could raise Cass.
 
 There was a pause. 
 
-Jane: She loves the outdoors. If I didn't burn, I could give her a normal life. So she'll be happy. 
+Jane: She loves the outdoors. If I didn't burn up in the sun, I could give her a normal life. So she'll be happy. 
 
 ![](07-11-26_11-12-14%20PM.png)
-Sara didn't know what think of that. She was willing to bet Jane was thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. 
+Sara was willing to bet Jane was thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
+
+Jane: Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. 
+
+Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara was honest things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. 
 
 
 <!-- No one needed to say *"so she doesn't run away like Savanna"* for it to hang in the air.  -->
