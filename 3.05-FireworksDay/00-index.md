@@ -81,15 +81,11 @@ Sara was willing to bet Jane was actually thinking *"so she doesn't run away lik
 
 Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara supposed if were honest about things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. But that would need to wait until later, so Sara tried to breathe.
 
-<!-- ![](07-12-26_8-47-04%20PM.png) -->
-<!-- ![](07-12-26_8-20-43%20PM.png) -->
-
 ![](07-12-26_9-03-34%20PM.png)
-Emma: Brenda has been asking about her other parent. There's a job opening at this research lab in Strangerville, FutureSim Labs. They're studying cutting-edge stuff there, including extraterrestrials. If I worked there, I think I could learn something to help Brenda. 
-
-, one of the things they're studying is space. If I worked there, I think I could learn something to help Brenda. 
+Emma: Brenda has been asking about her other parent. There's a job opening at this research lab in Strangerville, FutureSim Labs. They're studying cutting-edge stuff there, including extraterrestrials. If I worked there, I think I could learn something to help keep Brenda safe. 
 
 ![](07-12-26_8-22-59%20PM.png)
-Emma: But they do all this testing on employees, I'd need to be human to work there. 
+Emma: But they do all this testing on employees, I'd need to be human to work there. Just temporarily. 
+
 
 
