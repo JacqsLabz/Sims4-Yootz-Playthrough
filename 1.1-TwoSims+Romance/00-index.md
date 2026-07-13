@@ -12,7 +12,7 @@ Sara Yootz, the athletic hot-head;
 
 and Jane Witt, the creative soul.
 
-They had been living together in the small Daisy Hovel for some time, and as that time passed, Sara had found herself slowing catching feelings for Jane. When she asked her friend at the gym, Don, for some advice. he recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
+They had been living together in the small Daisy Hovel a while, and as that time had passed, Sara had found herself slowing catching feelings for Jane. When she asked her friend at the gym, Don, for some advice, he recommended being direct. So, one evening Sara had finished her workout and Jane was getting ready for bed, when Sara made the first move.
 
 ![](12-22-16_6-21-05%C2%A0PM.png)
 
@@ -40,7 +40,7 @@ Sara supressed a giggle.
 
 ----
 
-One morning, after her normal workout, 
+One morning, after her workout, 
 
 ![](12-22-16_4-47-03%C2%A0PM.png)
 Sara decided to surprise Jane again.
@@ -241,7 +241,7 @@ Then the next morning when they were getting ready for the day...
 
 ![](12-22-16_7-01-45%C2%A0PM.png)
 
-Sara's grin grew as she looked deep in Jane's eyes and gave a little nod. It helped seeing Jane so passionately excited, seeing her happy. Also, the look in her wife's eyes reminded Sara why she had choose to go through with this. It was hard not feeling comfortable in her own skin, but this was their chance to start a family. 
+Sara's grin grew as she looked deep in Jane's eyes and gave a little nod. It helped seeing Jane so passionately excited, seeing her happy. Also, the look in her wife's eyes reminded Sara why she had choose to go through with this. It was hard not feeling comfortable in her own skin, but this was their chance to start a family. The timing was definitely not how she would have picked, but she didn't know if they'd get another one. 
 
 ----
 

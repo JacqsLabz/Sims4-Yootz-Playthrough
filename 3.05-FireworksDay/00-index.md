@@ -1,6 +1,8 @@
 
 ![](06-29-26_2-06-19%20PM.png)
-Basement water fun for vampires Fireworks Day (a holiday in my game based on US's July 4th with the name coming from the RvB PSA). 
+Anne and Emma joined Sara for some water fun in the basement pool for Fireworks Day 
+
+*(a holiday in my game based on US's July 4th with the name coming from the RvB PSA)* 
 
 ![](06-29-26_2-15-29%20PM.png)
 Anne took the girls out in the yard for their water fun. 
@@ -28,7 +30,6 @@ Clara: Grandma! I was in the pool!
 ![](06-29-26_2-42-17%20PM.png)
 Clara: Why everybody lookin at my mouth?
 
-<!-- ![](06-29-26_2-41-57%20PM.png) -->
 ![](06-29-26_2-36-42%20PM.png)
 Sara: Because your big girl teeth are so pretty, baby. 
 
@@ -56,7 +57,7 @@ Emma: These are **so** good mom, thanks.
 
 Late in the night when Clara, Brenda, and Cass were all sleep, Sara, Jane, Emma, and Anne gathered in the dinning room. 
 
-For a few moments, no one said anything. <!-- ![](07-07-26_11-03-30%20PM.png) -->
+For a few moments, no one said anything. 
 
 ![](07-11-26_10-13-19%20PM.png)
 Sara broke the silence, "Well, we all knew this might happen."
@@ -64,39 +65,31 @@ Sara broke the silence, "Well, we all knew this might happen."
 ![](07-07-26_11-04-13%20PM.png)
 Anne: The more I think about it, the more I don't see a way to balance what they both need. Clara needs somewhere like Ravenwood, where her fangs won't be an issue. But Cass... 
 
-<!-- ![](07-07-26_11-22-22%20PM.png) -->
-<!-- ![](07-07-26_11-29-04%20PM.png) -->
-<!-- ![](07-11-26_10-26-37%20PM.png) -->
-<!-- ![](07-06-26_8-16-25%20PM.png) -->
-
 Sara: Cass hasn't shown any interest in vampires and ghosts; she loves things like camping. 
 
 ![](07-11-26_10-21-53%20PM.png)
 Jane: If I took the cure, I could raise Cass. 
 
-There was a pause. Sara just stopped. She'd learned the recipe for a drink to cure vampirism, but honestly had not expected to use it. 
+There was a pause. Sara just stopped. She'd learned the recipe for a drink to cure vampirism, but honestly had not expected to ever use it. 
 
 Jane: She loves the outdoors. If I didn't burn up in the sun, I could give her a normal life. So she'll be happy. 
 
 ![](07-11-26_11-12-14%20PM.png)
-Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
+Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up your immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
 
 "Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. We could go back to being immortal together, when she's old enough." Jane put her left hand on Sara's right under the table. 
 
-Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara was honest things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. 
+Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara supposed if were honest about things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. But that would need to wait until later, so Sara tried to breathe.
+
+<!-- ![](07-12-26_8-47-04%20PM.png) -->
+<!-- ![](07-12-26_8-20-43%20PM.png) -->
+
+![](07-12-26_9-03-34%20PM.png)
+Emma: Brenda has been asking about her other parent. There's a job opening at this research lab in Strangerville, FutureSim Labs. They're studying cutting-edge stuff there, including extraterrestrials. If I worked there, I think I could learn something to help Brenda. 
+
+, one of the things they're studying is space. If I worked there, I think I could learn something to help Brenda. 
+
+![](07-12-26_8-22-59%20PM.png)
+Emma: But they do all this testing on employees, I'd need to be human to work there. 
 
 
-<!-- No one needed to say *"so she doesn't run away like Savanna"* for it to hang in the air.  -->
-
-<!-- ![](07-11-26_11-05-41%20PM.png) -->
-
-<!-- ![](07-11-26_10-22-47%20PM.png) -->
-<!-- Jane turned to Sara.  -->
-
-<!-- ![](07-11-26_10-25-12%20PM.png) -->
-
-<!-- Sara: What?  -->
-
-<!-- Jane: She loves the outdoors. If I didn't burn, I could give her a normal life. So she'll be happy.  -->
-
-<!-- ![](07-07-26_11-28-08%20PM.png) -->
