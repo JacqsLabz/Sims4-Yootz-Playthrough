@@ -1,14 +1,15 @@
+
 ![](06-07-18_9-37-54%C2%A0AM.png)
 
 Jane and Emma went to the spicy festival.
 
 ![](06-07-18_9-41-22%C2%A0AM.png)
 
-Sara and Anne went with them, though Anne didn't enjoy it. She missed eating regular solid food, because similar to Sara, her stomach had withered. In her case, as she became a teenager and her vampire powers manifested.
+Sara and Anne went with them, 
 
 ![](06-07-18_11-49-35%C2%A0AM.png)
 
-Anne did managed find other things to do.
+though Anne found other things to do.
 
 ----
 
@@ -36,11 +37,14 @@ Jane wasn't sure rather to gloat or not.
 ![](06-07-18_1-20-29%C2%A0PM.png)
 Sara got her back though.
 
-![](06-07-18_1-34-58%C2%A0PM.png)
 ![](06-07-18_1-24-12%C2%A0PM.png)
-Being out in the sun, Jane & Sara both needed to be careful to not have the sun burn away all their dark energy.
+
+![](06-07-18_1-34-58%C2%A0PM.png)
+
+Being out in the sun, especially Jane needed to be careful to not have the sun burn away all her dark energy.
 
 ![](06-07-18_1-23-17%C2%A0PM.png)
+
 Jane and Anne tried out some programming.
 
 ![](06-07-18_1-39-10%C2%A0PM.png)

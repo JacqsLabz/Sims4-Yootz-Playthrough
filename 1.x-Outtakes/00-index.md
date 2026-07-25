@@ -6,6 +6,3 @@ Sometimes very wacky silly funny things/glitches happen, and I'm going to use "o
 ![](12-23-16_1-27-05%20PM.png)
 Yes, drink the air Sara. 
 
-![](12-24-16_10-14-46%20AM.png)
-Can we help you Emma? War path much? 
-

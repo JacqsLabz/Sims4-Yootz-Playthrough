@@ -18,12 +18,16 @@ To much success!
 ----
 
 ![](05-30-18_1-05-32%C2%A0PM.png)
+
 ![](05-30-18_1-07-59%C2%A0PM.png)
+
 ![](05-30-18_1-08-07%C2%A0PM.png)
 Group dance!
 
-![](05-30-18_1-23-08%C2%A0PM.png)![](05-30-18_1-24-05%C2%A0PM.png)
-Congraduations
+![](05-30-18_1-23-08%C2%A0PM.png)
+
+![](05-30-18_1-24-05%C2%A0PM.png)
+Congratulations
 
 ----
 
@@ -44,5 +48,7 @@ They had a birthday party for Emma.
 ![](05-30-18_7-42-40%C2%A0PM.png)
 Fusball games.
 
-![](05-30-18_8-11-11%C2%A0PM.png)![](05-30-18_8-14-41%C2%A0PM.png)
+![](05-30-18_8-11-11%C2%A0PM.png)
+
+![](05-30-18_8-14-41%C2%A0PM.png)
 Emma blew out the candles, as became an young adult!

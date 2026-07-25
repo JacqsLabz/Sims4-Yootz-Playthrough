@@ -4,7 +4,7 @@ Sara knocked, and it was Lilith who answered the door. Lilith lead her in with l
 
 "We need to talk." Sara said to Lilith, skipping any real greeting.
 
-"Yes, I suppose we do. Let's sit over there." Lilith guestered to the couch and arm chairs.
+"Yes, I suppose we do. Let's sit over there." Lilith gestured to the couch and arm chairs.
 
 Caleb stood, "Shall I join you, sister?"
 
@@ -22,7 +22,7 @@ But she managed to swallow it down, and followed Lilith.
 
 "You bit me, you turned me. Which is one thing, but what's more important is it turns out I'm pregnant."
 
-"Oh my! Congradutation!" Lilith put her hands to her face. "I had no idea," stood and came near Sara,
+"Oh my! Congratulation!" Lilith put her hands to her face. "I had no idea," stood and came near Sara,
 
 ![](12-12-17_6-53-52%C2%A0PM.png)
 

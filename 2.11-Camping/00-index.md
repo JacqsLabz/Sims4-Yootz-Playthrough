@@ -1,6 +1,6 @@
 After everything, Sara and Jane decided to take the girls on a vacation, to get away from it all at a cabin out in the woods.
 
-![](12-22-17_1-07-28%C2%A0AM.png)
+![](12-22-17_1-07-28%C2%A0AM.png "Anne, Emma, Sara, Savanna")
 
 They did things like playing cards,
 

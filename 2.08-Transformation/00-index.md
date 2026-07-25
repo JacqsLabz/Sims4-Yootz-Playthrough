@@ -1,3 +1,4 @@
+
 *The next morning... / One morning a few days later...*
 
 "Hey sweetie, how you doing?" Sara asked.
@@ -78,7 +79,7 @@ Sara noddeed, back up a little, and channeled the dark energy of the vampires.
 
 ![](12-20-17_6-02-32%C2%A0PM.png)
 
-"If this is what you want, then come here."
+Sara: If this is what you want, then come here.
 
 ![](12-20-17_6-00-48%C2%A0PM.png)
 
@@ -94,7 +95,11 @@ Sara released the dark energy, and returned to her normal form.
 
 ----
 
-![](12-20-17_6-04-33%C2%A0PM.png)![](12-20-17_6-04-57%C2%A0PM.png)![](12-20-17_6-05-12%C2%A0PM.png)
+![](12-20-17_6-04-33%C2%A0PM.png)
+
+![](12-20-17_6-04-57%C2%A0PM.png)
+
+![](12-20-17_6-05-12%C2%A0PM.png)
 
 ----
 

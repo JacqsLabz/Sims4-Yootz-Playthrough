@@ -23,7 +23,7 @@ She found she liked breast feeding their girls,
 
 ![](12-23-16_7-30-21%C2%A0PM.png)
 
-and that Don had been right: most of her strength & endurance returned pretty quickly.
+and that most of her strength & endurance returned pretty quickly.
 
 ![](12-23-16_6-20-20%C2%A0PM.png)
 

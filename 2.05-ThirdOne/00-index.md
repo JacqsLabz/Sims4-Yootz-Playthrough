@@ -1,3 +1,4 @@
+
 ![](12-12-17_7-56-11%C2%A0PM.png)
 
 Sara learned as much as she could about vampires from the books the siblings had recommended to her,
@@ -48,12 +49,8 @@ One night, Sara introduced Jane & Lilith. They were getting to know each other w
 
 "I think it's time."
 
-Lilith got up and grabbed a blood bag for Sara. "Drink this, it'll help." She sat on the couch again.
+----
 
-![](12-12-17_9-51-50%C2%A0PM.png)
-
-"Thanks."
-
-After a while, when she got closer, Sara moved to the bedroom to have her thrid daughter: Anne.
+After a while, when she got closer, Sara moved to the bedroom to have her third daughter: Anne.
 
 ![](12-12-17_9-55-08%C2%A0PM.png)

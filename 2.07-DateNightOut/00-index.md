@@ -1,3 +1,4 @@
+
 ![](12-19-17_10-23-38%C2%A0PM.png)
 
 "I've been thinking, what about a night out on the town?" Sara asked.

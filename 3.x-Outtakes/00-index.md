@@ -58,3 +58,28 @@ Comfy there? Ug, this house glitches too much.
 ![](05-25-22_10-57-05%20AM.png)
 Contacted the beyond yet Emma? 
 
+
+![](06-19-18_10-26-14%C2%A0PM.png)
+
+Anne: Hey death, guess what?
+
+![](06-19-18_10-26-26%C2%A0PM.png)
+
+I give you the reaper being excited
+
+----
+
+And now, a cut scene/moment: 
+
+"Child, it is not for me to speak of," the unearthly tone came from his hood, "it is not for mortal minds to know."
+
+"I'm not a mortal, I'm a vampire. And you already came for me once. Can't you give me some idea, at least rather it will happen in the next few days." She opened her eyes and didn't hide her fear. "Please." she blink away a tear. "I keep feeling sicker and sicker..."
+![](06-19-18_11-49-42%20PM.png)The Reaper put his arms around her. "I can not say how long until I come for anyone, child." He dropped into a faint, whisper-like volume Emma could hardly hear, "But, I can say that this thing which you fear, it does not draw your soul to me."
+
+----
+
+![](06-20-18_12-14-34%20AM.png)
+
+Oh good, Emma's not the only 'classy' one. 
+
+![](06-20-18_12-59-17%20AM.png)

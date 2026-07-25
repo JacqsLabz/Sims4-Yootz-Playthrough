@@ -86,7 +86,13 @@ I give you Vlad the pirate.
 
 ![](05-29-18_2-39-35%C2%A0PM.png)
 
-![](05-29-18_3-19-08%C2%A0PM.png)![](05-29-18_3-32-58%C2%A0PM.png)![](05-29-18_3-53-46%C2%A0PM.png)![](05-29-18_3-51-57%C2%A0PM.png)
+![](05-29-18_3-19-08%C2%A0PM.png)
+
+![](05-29-18_3-32-58%C2%A0PM.png)
+
+![](05-29-18_3-53-46%C2%A0PM.png)
+
+![](05-29-18_3-51-57%C2%A0PM.png)
 Root beer floats
 
 ![](05-29-18_3-56-29%C2%A0PM.png)
@@ -95,7 +101,7 @@ And movies nights,
 ![](05-29-18_3-56-48%C2%A0PM.png)
 with popcorn of course, per Emma's request. 
 
-Emma: Mmh, it tastes just like how I remember! 
+Emma: Mmm, it tastes just like how I remember! 
 
 ----
 
@@ -117,5 +123,7 @@ And a yoga studio
 
 ![](05-29-18_4-39-17%C2%A0PM.png)
 
-![](05-29-18_7-07-17%C2%A0PM.png)![](05-29-18_7-08-12%C2%A0PM.png)
+![](05-29-18_7-07-17%C2%A0PM.png)
+
+![](05-29-18_7-08-12%C2%A0PM.png)
 Yay school projects

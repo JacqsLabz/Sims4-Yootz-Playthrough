@@ -53,6 +53,12 @@ Emma: These are **so** good mom, thanks.
 
 ![](06-29-26_4-01-06%20PM.png)
 
+![](06-29-26_4-03-07%20PM.png)
+
+More holiday water fun. 
+
+(I didn't get distracted and run out of time for actual fireworks, idk what you're talking about)
+
 ----
 
 Late in the night when Clara, Brenda, and Cass were all sleep, Sara, Jane, Emma, and Anne gathered in the dinning room. 
@@ -60,32 +66,70 @@ Late in the night when Clara, Brenda, and Cass were all sleep, Sara, Jane, Emma,
 For a few moments, no one said anything. 
 
 ![](07-11-26_10-13-19%20PM.png)
-Sara broke the silence, "Well, we all knew this might happen."
+Sara broke the silence, "Well, we all knew this might happen." She sighed and leaned forward. 
 
 ![](07-07-26_11-04-13%20PM.png)
-Anne: The more I think about it, the more I don't see a way to balance what they both need. Clara needs somewhere like Ravenwood, where her fangs won't be an issue. But Cass... 
+Anne: The more I think about it, the more I don't see a way to balance what they both need anymore. Clara needs somewhere like Ravenwood, where her fangs won't be an issue. But Cass... 
 
 Sara: Cass hasn't shown any interest in vampires and ghosts; she loves things like camping. 
 
 ![](07-11-26_10-21-53%20PM.png)
 Jane: If I took the cure, I could raise Cass. 
 
-There was a pause. Sara just stopped. She'd learned the recipe for a drink to cure vampirism, but honestly had not expected to ever use it. 
+There was a pause. Sara leaned back in her chair. She'd learned the recipe for a drink to cure vampirism, but honestly had not expected to ever use it. 
 
 Jane: She loves the outdoors. If I didn't burn up in the sun, I could give her a normal life. So she'll be happy. 
 
 ![](07-11-26_11-12-14%20PM.png)
-Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. "You'll give up your immortality for Cass?" Sara felt that old fear of being alone, but waited to hear what her wife had to say. 
+"You'd give up your immortality for Cass?" Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. 
 
 "Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. We could go back to being immortal together, when she's old enough." Jane put her left hand on Sara's right under the table. 
 
-Sara felt her body relax from tension she hadn't even noticed. "If that's what you really want, then I'll make the cure for you." And probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but if Sara supposed if were honest about things, Jane wasn't that durable as a vampire either. Given that Jane had literally burned up twice already. So many conflicting feelings to work out. But that would need to wait until later, so Sara tried to breathe.
+Sara forced a deep breath. "If that's what you really want, then I'll make the cure for you." And then probably beat her punch bag to a pulp. The idea of Jane being a frail human scared Sara, but Sara supposed if she were honest about things, Jane wasn't that durable as a vampire either. She didn't like to think about how Jane had literally burned up twice already, but it was the blunt truth. Avoiding thinking about it didn't change it. So many conflicting feelings to work out. But that would need to wait until later, they had to get through this first. 
 
 ![](07-12-26_9-03-34%20PM.png)
-Emma: Brenda has been asking about her other parent. There's a job opening at this research lab in Strangerville, FutureSim Labs. They're studying cutting-edge stuff there, including extraterrestrials. If I worked there, I think I could learn something to help keep Brenda safe. 
+Emma: Brenda has been asking about her other parent. There's a job opening at this research lab in Strangerville, FutureSim Labs. They're studying cutting-edge stuff there, including extraterrestrials. If I can get a job there, I could find out a lot, maybe see if it's possible for her to meet them. Or at least learn more about keeping her safe. 
 
 ![](07-12-26_8-22-59%20PM.png)
 Emma: But they do all this testing on employees, I'd need to be human to work there. Just temporarily. 
 
+Sara looked down. Emma wanted to go to Strangerville alone as a human with Brenda? Sara knew about that place, and that testing wasn't to look for vampires. Her breath was shaky, "Then I'll make two, but I'm coming with you."
 
+Jane: What?
+
+"In case Brenda needs to be protected." Sara flexed her fists under the table again. "We won't want anyone to notice us, so we'll need to blend in and look as normal as we can." Anne would be perfectly safe in a supernatural safe haven. If Jane was human, she would be as safe as she could be hidden in nature. But Emma? What she was talking about was risky. "Let's get this all ironed out, then I'll make the cures."
+
+----
+
+![](07-07-26_11-37-08%20PM.png)
+
+![](07-07-26_11-39-59%20PM.png)
+
+Jane's room on the back porch suddenly seemed like a cage. 
+
+![](07-11-26_11-36-37%20PM.png)
+
+Sara & Jane spent some time cuddling before the move. 
+
+----
+
+![](06-29-26_1-52-50%20PM.png)
+
+One night while Brenda was sleep, Sara called a meeting of her coven
+
+![](06-29-26_1-53-54%20PM.png)
+
+To tell them she was moving, and while it had been a long time since the last meeting, it would be a long time still under the next one. 
+
+They told Lilith how Anne was moving to Ravenwood, and she mentioned Kaylie had been saving up to move there herself. 
+
+Don lingered after the meeting, and asked Sara what was going on. He could tell there was something she wasn't telling them. Sara knew she could trust Don, so she told him about Brenda, Strangerville, and the jobs they were getting. 
+
+"Then I'll come with you." Don said. 
+
+"You don't have-" Sara started, but Don shook his head. 
+
+"It's getting weird now that I look the same age as my son. I could use a change of pace. I'll get my own place nearby and join up with you."
+
+Sara had to admit, it would help them blend in. "Thanks." 
 

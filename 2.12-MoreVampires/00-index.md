@@ -1,6 +1,7 @@
+
 ![](12-23-17_11-16-25%C2%A0PM.png)
 
-Anne asked questions about being a vampire, and how things would be when she grew up.
+Anne often had lots of questions for Sara about vampirism.
 
 ![](12-30-17_6-40-46%C2%A0PM.png)
 
@@ -92,7 +93,11 @@ The more Emma notied how the waves felt, the more Lilith's words came back to he
 
 ----
 
-![](05-21-18_5-01-03%C2%A0PM.png)![](05-21-18_5-01-11%C2%A0PM.png)![](05-21-18_5-01-35%C2%A0PM.png)
+![](05-21-18_5-01-03%C2%A0PM.png)
+
+![](05-21-18_5-01-11%C2%A0PM.png)
+
+![](05-21-18_5-01-35%C2%A0PM.png)
 
 ----
 

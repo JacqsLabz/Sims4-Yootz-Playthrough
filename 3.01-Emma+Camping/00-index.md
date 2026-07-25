@@ -1,3 +1,4 @@
+
 ![](06-18-18_7-41-17%C2%A0PM.png)
 Emma and Jane went to the spice festival again.
 
@@ -5,38 +6,55 @@ Emma and Jane went to the spice festival again.
 And ran into Savanna.
 
 ![](06-18-18_7-50-02%C2%A0PM.png)
-Who attacked Emma.
+
+Who attacked her twin sister, Emma.
 
 ![](06-18-18_7-51-06%C2%A0PM.png)
-But Emma showed Savanna.
+
+But Emma, being a vampire, could handle herself. 
 
 ----
 
 ![](06-19-18_2-10-45%C2%A0PM.png)
+
 Cassandra became a toddler.
 
 ![](06-19-18_4-52-29%C2%A0PM.png)
 ![](06-19-18_4-52-47%C2%A0PM.png)
-Emma took a short trip the worlds beyond.
+
+Emma took her own trip to another world.
 
 ![](06-19-18_4-57-40%C2%A0PM.png)
-"It was so weird." She told Anne about the experience.
 
-![](06-19-18_5-07-08%C2%A0PM.png)
-*'Did my stomach wither up like Sara's and Anne's'* Emma thought.
+"It was so strange." She told Anne about her experience as soon as she got back. "My stomach still feels all bleh."
+
+"Maybe it just needs a little time? I'm sure you'll feel better soon." Anne suggested.
+
+"You're probably right. Thanks sis." Emma smiled. 
 
 ----
+
+![](06-19-18_5-07-08%C2%A0PM.png)
+
+*'What did the aliens do to me?'* she wondered. The pain hurt, but given how weird her body was already, Emma wasn't surprised it was have a weird reaction to something as weird as whatever aliens had done to her.  
+
+----
+
 ![](06-19-18_5-22-20%C2%A0PM.png)
-Say hi to Willson
+
+Say hi to Wilson
 
 ![](06-19-18_5-22-43%C2%A0PM.png)
-and Pancakes, important members of the family, lol.
+
+and Pancakes, very important members of the family, lol.
 
 ----
 
 ![](06-19-18_8-31-17%C2%A0PM.png)
 
-Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daughter of Lilith Vatore, who turned Sara (Anne's mother).
+Anne was up to her usual romantic pursuits. This time with Kaylie Vatore, daughter of Lilith Vatore and Alexander "Goth"
+
+*(Lilith bit & changed Sara, Anne's mother, while she was pregnant with Anne. Alexander married and changed his last name, because why would the game keep things simple for me?)*
 
 ![](06-19-18_8-53-41%C2%A0PM.png)
 
@@ -46,9 +64,15 @@ Meanwhile, Emma still wasn't sure about her stomach.
 
 But that didn't stop Anne & Emma from having random dance-off's.
 
+----
+
+Anne called a family meeting.
+
 ![](06-19-18_10-03-19%C2%A0PM.png)
 
 "So I have some great news everyone, I'm pregnant again!" Anne said.
+
+Especially Sara was excited. 
 
 ![](06-19-18_10-07-37%C2%A0PM.png)
 
@@ -56,100 +80,129 @@ But that didn't stop Anne & Emma from having random dance-off's.
 
 "That's sounds great." Anne said.
 
-"Yeah, just like when you were two were young." Sara agreed, thinking about Cassandra.
+"Yeah, just like when you were two were young." Then Sara turned to her granddaughter, "What you think Cassandra, ready to be outside?" 
+
+Cass turned to Sara and smiled at her. 
+
+"We are not staying in a tent, I will make all the arrangements." Anne pulled out her phone with one had and held out her other toward Sara, "Give me your card."
+
+Sara rolled her eyes at Anne, then while pulling out her wallet said to Cass, "Don't worry, grandma make sure you aren't indoors the whole time."
+
+Cassandra giggled and clapped. 
+
+Anne took the offered wallet. "And grandma can make sure she gets regular baths and check her for ticks." Anne curled her lip and showed a fang. "I will not have insects feeding from my daughter." 
+
+"Say it'll be worth it, right Cass?" Sara smiled. 
 
 ----
-
-<!-- ![](06-19-18_10-12-30%C2%A0PM.png) -->
 
 ![](06-19-18_10-15-11%C2%A0PM.png)
 
-Emma still had waves of pain, but she didn't draw attention to it.
+When they got there, Emma was carrying Cass to the cabin when the upset feeling in her stomach got intense for a moment. Her belly felt hollow, but the blood fruit salads just made her feel worse. The thought gave Emma had an idea: Maybe something liquid would go down better? 
+
+Though Emma wasn't about to go out hunting like her younger sister typically did. She got Cass tucked in in her crib for the night, and then headed to the bar in the kitchen. Emma tried her hand at making the drink her mother favored. She had seen Sara make it so many times, and they had brought plenty of blood fruit. 
 
 ![](06-19-18_10-18-19%C2%A0PM.png)
 
-She tried the bloody marry drink her mother and sister lived on,
+If she had to temporarily switch to a liquid diet, she would miss solid food, but it would be worth if it got her stomach to calm down.
 
 ![](06-19-18_10-19-48%C2%A0PM.png)
 
-but even that turned her stomach and made it cramp up with pain.
-
-![](06-19-18_10-24-15%C2%A0PM.png)![](06-19-18_10-23-38%C2%A0PM.png)
-
-Meanwhile Anne had plenty of food to choose from.
-
-![](06-19-18_10-26-14%C2%A0PM.png)![](06-19-18_10-26-26%C2%A0PM.png)
-Hey death, guess what?
+*'No time like the present to try it.'* Emma thought before taking her first sip of the drink. 
 
 ----
 
-One night Anne invited Emma to a game of cards.
+![](06-19-18_10-24-15%C2%A0PM.png)
+
+![](06-19-18_10-23-38%C2%A0PM.png)
+
+Meanwhile Anne had plenty of food to choose from.
+
+----
+
+One night Anne and Emma decided to enjoy the view from the back deck of the cabin and play a few games of cards.
+
+![](06-19-18_10-34-22%C2%A0PM.png)
+
+"I love this song." Emma followed the beat with her finger.
+
+"Sis, you are so lame." Anne rolled her eyes. "It's you turn."
+
+![](06-19-18_10-31-22%C2%A0PM.png)
+
+That same weird feeling waved over Emma.
+
+"Hey, are you ok?" Anne asked.
+
+![](06-19-18_10-31-41%C2%A0PM.png)
+
+"Yeah," Emma tried to breath. "I'm fine, my stomach is just still fussy from before."
+
+"Oh," Anne raised her head, "it's still bothering you? Have you told Mom?"
+
+"There hasn't really been a good time..."
+
+![](06-19-18_10-34-59%C2%A0PM.png)
+
+"Nonsense. Look, how about I help you tell both of them in the morning during breakfast? How does that sound?"
+
+"Thanks." Emma smiled. 
 
 ![](06-19-18_10-34-09%C2%A0PM.png)
+
+"Anyway, you said it was my turn?" Emma looked at her hand again.
+
+
+
 
 ![](06-19-18_10-29-51%C2%A0PM.png)
 
 Emma was busy thinking about a card when Anne spoke up. "Look, sis, I can tell something's been wrong."
 
-![](06-19-18_10-34-22%C2%A0PM.png)
 "I love this song."
 "Look, sis, you can drop the act."
 
-![](06-19-18_10-34-59%C2%A0PM.png)
 "What act? What do you mean?"
 "You might be able to hide it from our parents, but I can tell something's been wrong."
 
 ![](06-19-18_10-33-52%C2%A0PM.png)
 
-"No I'm ok- ow."
 
-![](06-19-18_10-31-22%C2%A0PM.png)
-Emma stuggled to breath in as the pain sugered in her gut.
-
-![](06-19-18_10-31-41%C2%A0PM.png)
-"You need to talk to mom about it." Anne signaled Sara to come over to them.
-
-![](06-19-18_10-43-08%C2%A0PM.png)
-"But-" Emma started.
-Sara sat down. "Emma, let us help you sweetie. We're family, we stick togehter."
-Emma blushed and looked down at her lap. "Can I have a little time? Just to put my thoughts together."
-Sara sighed, "Tomorrow then. But no more putting this off, got it?"
-Emma nodded. "Ok."
 
 ----
 
-In the next morning, she went on a hike to clear her mind and get her thougts in order.
+In the next morning, Emma woke up early and decide to go for hike, to see if helped her feel any better.
 
 ![](06-19-18_11-46-23%C2%A0PM.png)
 
 And found an old "friend"
 
+Everyone else just walked by, no one else seemed to see him. If he was here for her,
+
 ![](06-19-18_11-49-00%C2%A0PM.png)
 
-"I have to know, am I coming up on you list again any time soon?"
+she knew there was no use in running, "Are you here for me again?"
+
+"No," the unearthly tone came from the hood, "Not you or the child you bear. Not now."
 
 ![](06-19-18_11-50-16%C2%A0PM.png)
 
-"Child, it is not for me to speak of," the unearthly tone came from his hood, "it is not for mortal minds to know."
+"The...?" Emma's face scrunched in confusion. "What child?"
 
-"I'm not a mortal, I'm a vampire. And you already came for me once. Can't you give me some idea, at least rather it will happen in the next few days." She opened her eyes and didn't hide her fear. "Please." she blink away a tear. "I keep feeling sicker and sicker..."
+Death made a noise, Emma wasn't sure if it was a sigh. "I am not here for you or your family. Just getting away for a small break."
 
-Death made a noise, Emma wasn't sure if it was a sigh.
+"Death takes a break?" 
 
-![](06-19-18_11-49-42%C2%A0PM.png)
+"We've started a new program: Grimterns. It's posted on mortal job boards. If you ever need a job, please put in an application. Given you history, you would be a natural at reaping souls."
 
-The Repear put his arms around her. "I can not say how long until I come for anyone, child." He dropped into a faint, whisper-like volume Emma could hardly hear, "But, I can say that this thing which you fear, it does not draw your soul to me."
+"Th-thanks." Emma blinked, "I'll keep that in mind... if I'm ever in the market for a job." Emma said to be polite. She didn't need a job, the family had so much money saved up, none of them worked unless they honestly wanted a certain job. 
 
-----
+He nodded and floated away.
 
 ![](06-19-18_11-57-25%C2%A0PM.png)
 
-Emma came back outof the woods both shaken and relieved.
+Emma continued her morning hike, eventually making her way back towards the rental cabin. A job, working for the Grim Reaper? Now she had heard everything.
 
 ![](06-20-18_12-05-28%C2%A0AM.png)
 
-She used the dark power of vampire to meditate for a little while to help calm her nerves, and then went inside to talk to her family.
-
-![](06-20-18_12-14-34%C2%A0AM.png)
-
-They were all hanging out at the bar, and sitting there, Emma couldn't help but think about how silly they all were, and how that would never change. Seeing them all just being themselves brougth her some peace of mind.
+Emma decided to get in some dark meditation before heading back inside for breakfast with her family.

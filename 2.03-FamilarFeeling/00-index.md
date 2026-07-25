@@ -18,11 +18,7 @@ Sara swallowed. "It's my stomach... honestly it reminds me of the morning sickne
 
 ![](12-12-17_4-32-21%C2%A0PM.png)
 
-"You're too cute dear." Sara watched her. "I'm not sure,"
-
-![](12-12-17_4-33-47%C2%A0PM.png)
-
-"But I have idea! If we wait a little while, I can take a test. Then we'll know for sure."
+"You're too cute dear." Sara watched her. "I'm not sure, but if we wait a little while, I can take a test. Then we'll know for sure."
 
 "That sounds great." Jane stood up. "Now come here."
 

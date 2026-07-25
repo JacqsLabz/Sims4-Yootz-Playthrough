@@ -1,6 +1,7 @@
+
 ![](12-21-17_9-47-04%C2%A0AM.png)
 
-Jane adjust to her new diet of eating and drinking blood fruit.
+Jane adjusted to her new diet of eating and drinking blood fruit.
 
 ![](12-21-17_9-46-56%C2%A0AM.png)
 

@@ -1,8 +1,3 @@
-![](06-03-18_6-38-23%C2%A0AM.png)
-
-Sara's knack for fixing things around the house eventually grew to building a rocket ship in the basement.
-
-----
 
 They went on a short camping trip, this time at an actual camp site.
 
@@ -23,8 +18,10 @@ Thankfully, everyone still had a lot of death flowers left over from the ambrosi
 
 ![](06-05-18_7-56-24%C2%A0AM.png)
 
-![](06-05-18_7-59-08%C2%A0AM.png)![](06-05-18_7-59-41%C2%A0AM.png)
-Anne added bear blood to her limited, liquid diet.
+![](06-05-18_7-59-08%C2%A0AM.png)
+
+![](06-05-18_7-59-41%C2%A0AM.png)
+Anne added bear blood to her diet.
 
 ----
 
