@@ -81,7 +81,7 @@ There was a pause. Sara leaned back in her chair. She'd learned the recipe for a
 Jane: She loves the outdoors. If I didn't burn up in the sun, I could give her a normal life. So she'll be happy. 
 
 ![](07-11-26_11-12-14%20PM.png)
-"You'd give up your immortality for Cass?" Sara was willing to bet Jane was actually thinking *"so she doesn't run away like Savanna"* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. 
+"You'd give up your immortality for Cass?" Sara was willing to bet Jane was actually thinking *'so she doesn't run away like Savanna'* - and Sara didn't have a better idea on how to give Cass the type of life she deserved. 
 
 "Not exactly, temporarily? Once she's grown, you could bite me again. If I start to age too much before then, I could drink that potion of youth we found. We could go back to being immortal together, when she's old enough." Jane put her left hand on Sara's right under the table. 
 
@@ -123,7 +123,7 @@ To tell them she was moving, and while it had been a long time since the last me
 
 They told Lilith how Anne was moving to Ravenwood, and she mentioned Kaylie had been saving up to move there herself. 
 
-Don lingered after the meeting, and asked Sara what was going on. He could tell there was something she wasn't telling them. Sara knew she could trust Don, so she told him about Brenda, Strangerville, and the jobs they were getting. 
+Don lingered after the meeting, and asked Sara what was going on. He could tell there was something she wasn't telling them. Sara hadn't planned on telling Don, but she knew she could trust him. So she told him about Brenda, Strangerville, and the jobs they were getting. 
 
 "Then I'll come with you." Don said. 
 
@@ -131,5 +131,5 @@ Don lingered after the meeting, and asked Sara what was going on. He could tell 
 
 "It's getting weird now that I look the same age as my son. I could use a change of pace. I'll get my own place nearby and join up with you."
 
-Sara had to admit, it would help them blend in. "Thanks." 
+Sara had to admit, it would help them blend in. Not to mention it'd be nice having a familiar face in town. "Thanks." 
 

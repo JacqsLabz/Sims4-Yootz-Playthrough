@@ -30,7 +30,7 @@ So they stood at the end of the table.
 
 Sara didn't even need to enter her dark form to feel it.
 
-Sara focused first one what magic she could feel, at first she just sense's Emma's vampiric darkness. But then she felt another magic that she hadn't felt in a while: alien magic. But it was concentrated down in... Emma's lower abdomen and pelvis? She shifted her magic to get a better feel, and couldn't believe what she felt: it was in Emma's womb, but it was fully alien, just like the ones that had abducted Sara for a brief time. "Emma...." Sara tried to start, but she lost the words before she could say them. 
+Sara focused first on what magic she could feel, at first she just sense's Emma's vampiric darkness. But then she felt another magic that she hadn't felt in a while: alien magic. But it was concentrated down in... Emma's lower abdomen and pelvis? She shifted her magic to get a better feel, and couldn't believe what she felt: it was in Emma's womb, but it was fully alien, just like the ones that had abducted Sara for a brief time. "Emma...." Sara tried to start, but she lost the words before she could say them. 
 
 Emma hesitated, but Sara didn't say more. "What is it Mom? How bad is it?" Emma felt a twinge of fear at hearing the tone Sara used. Was she going to be a ghost again?
 

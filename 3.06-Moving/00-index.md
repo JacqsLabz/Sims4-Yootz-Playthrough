@@ -17,7 +17,7 @@ Bottoms up
 
 ![](07-08-26_3-52-30%20PM.png)
 
-Sunlight flowed all through Jane, while Emma disapeared in black smoke. 
+Sunlight seemed to flow all through Jane, while Emma disapeared in black smoke. 
 
 ![](07-08-26_3-53-36%20PM.png)
 
@@ -31,7 +31,7 @@ Emma felt like something inside was being pulled apart.
 
 Jane: Wow, that was a rush.
 
-Emma: Hey mom, did it work.
+Emma: Hey mom, did it work?
 
 Sara didn't need to release her dark magic, she could already feel it. "Yah." Sara had been worried for a moment when Emma had vanished, but she could sense that they were both ok. And just regular humans. 
 
@@ -73,7 +73,7 @@ Jane and Cass moved to a tiny cabin in Gibbi Point (in the middle of a heat wave
 
 ![](07-10-26_4-43-18%20PM.png)
 
-Jane took Cass to play at parks while working on paintings to earn money. 
+Jane took Cass to play at parks while working on paintings to earn money. She loved being actually outdoors doing her painting, like she had so many years ago on the front porch of Daisy Hovel. 
 
 ![](07-10-26_4-49-35%20PM.png)
 
@@ -89,7 +89,7 @@ They enjoyed the great outdoors together.
 
 ----
 
-In Strangerville, Emma got the join at the science research lab while Sara and Don enlisted.
+In Strangerville, Emma got the job at the science research lab while Sara and Don enlisted.
 
 ![](07-10-26_9-08-23%20PM.png)
 
@@ -103,5 +103,5 @@ Sara could make them sunlight cocktails before work,
 
 ![](07-10-26_9-11-18%20PM.png)
 
-and they could practice moving at human speed together. 
+and they could practice moving at human speeds together. 
 
