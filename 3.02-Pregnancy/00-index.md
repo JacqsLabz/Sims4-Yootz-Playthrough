@@ -1,7 +1,7 @@
 
 ![](06-20-18_12-22-30%C2%A0AM.png)
 
-Emma made herself a bloody mary, then joined the others at the table as Sara was telling a story.
+Emma made herself a bloody mary, then joined the others at the table as Sara was telling a story. 
 
 ![[06-20-18_12-22-16 AM.png]]
 
@@ -9,16 +9,21 @@ When Sara finished, Jane smiled at Emma, "I made plenty of salad and put it in t
 
 "I think just stick to this for now," Emma held her cup, "But thanks mom."
 
-"She hasn't been feeling well lately." Anne started. 
-
+"Emma, don't just brush it off like that." Anne told her sister, "it's time to let them know." 
 
 ![](06-20-18_12-20-31%C2%A0AM.png)
 
-Sara shifted in her chair, "What's wrong dear?" 
+When Emma didn't speak up, Sara shifted in her chair, "What's going on dear?" 
+
+"I guess..." Emma tried, how did she even put it into words? "I've been feeling off for a little while." She drank the last of her bloody mary. 
+
+"It started with the aliens." Anne reminded her. 
+
+"Yes, even since I got abducted that one night,"
 
 ![](06-20-18_12-23-06%C2%A0AM.png)
 
-Jane got up to clean the dishes and Emma held her belly, "I'm not sure; here recently I've felt so strange, especially my stomach. I don't know, I guess my gut has been hurting and upset off and on since the aliens."
+Jane got up to clean the dishes and Emma held her belly, "I've felt so strange, especially my stomach. I don't know, I guess my gut has had these waves of pain. I don't know what's causing it. But the bloodfruit salads have been making my stomach upset more recently." Not to mention she didn't have much energy and felt so bloated, but she wasn't sure she wanted to talk about that part. 
 
 Sara listened intently. "How about we see what I can sense, ok?" 
 
@@ -28,7 +33,7 @@ So they stood at the end of the table.
 
 ![](06-20-18_12-32-27%C2%A0AM.png)
 
-Sara didn't even need to enter her dark form to feel it.
+<!-- Sara didn't even need to enter her dark form to feel it. -->
 
 Sara focused first on what magic she could feel, at first she just sense's Emma's vampiric darkness. But then she felt another magic that she hadn't felt in a while: alien magic. But it was concentrated down in... Emma's lower abdomen and pelvis? She shifted her magic to get a better feel, and couldn't believe what she felt: it was in Emma's womb, but it was fully alien, just like the ones that had abducted Sara for a brief time. "Emma...." Sara tried to start, but she lost the words before she could say them. 
 
@@ -38,10 +43,9 @@ Emma hesitated, but Sara didn't say more. "What is it Mom? How bad is it?" Emma 
 
 Emma froze and her eyes went big. "I'm what?" 
 
-"Let's get you sitting back down again, ok?" Sara help guide Emma to her chair again, before sitting her own. 
+"Let's get you sitting back down again, ok?" Sara help guide Emma to her chair again, before sitting in her own chair again. 
 
 Anne's face was covered in surprise, "So we're pregnant at the same time? Emma is going to have a child too? What are the odds of that?"
-
 
 ![](06-20-18_12-26-17%C2%A0AM.png)
 
@@ -121,10 +125,6 @@ The change to her diet seemed to cause a growth spurt for Emma's unborn baby; he
 
 Not long after the change to her diet, Emma's belly seemed to go through a growth spurt.
 
-The change to her diet seemed to cause a growth spurt.
-
-Not long after the change to her diet, it seemed like her baby went through a growth spurt to Emma. Her belly seemed to grow even faster than it has before.
-
 ![](06-20-18_9-58-54%C2%A0AM.png)
 
 So, Emma enjoyed many of the foods she hadn't touched in quite a long time.
@@ -198,4 +198,5 @@ From the moment Brenda was born, Emma promised herself that she would would do w
 She needed some time to recover, but stayed near her new daughter.
 
 ![](06-20-18_11-42-52%C2%A0PM.png)
+
 Anne met her niece Brenda, with her daughter Cassandra was nearby.

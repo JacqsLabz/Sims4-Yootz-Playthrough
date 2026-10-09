@@ -76,7 +76,7 @@ Especially Sara was excited.
 
 ![](06-19-18_10-07-37%C2%A0PM.png)
 
-"I got an idea," Emma said, "How about we all go out to the cabin? It's so relaxing out there."
+"I got an idea," Emma said, "How about we all go out to Granite Falls? It's so relaxing out there."
 
 "That's sounds great." Anne said.
 

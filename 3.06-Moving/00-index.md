@@ -33,7 +33,7 @@ Jane: Wow, that was a rush.
 
 Emma: Hey mom, did it work?
 
-Sara didn't need to release her dark magic, she could already feel it. "Yah." Sara had been worried for a moment when Emma had vanished, but she could sense that they were both ok. And just regular humans. 
+Sara didn't need to release her dark magic, she could already feel it. "Yeah." Sara had been worried for a moment when Emma had vanished, but she could sense that they were both ok. And just regular humans. 
 
 ----
 
