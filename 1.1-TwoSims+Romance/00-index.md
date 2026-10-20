@@ -117,7 +117,7 @@ Some mornings, Sara has tea instead of working out.
 
 "How about I make us some breakfast?" Jane offered.
 
-"Yeah, sure." Sara said. Her stomach still wasn't doing that great, but she didn't want to worry Jane too much.
+"Yeah, sure." Sara said. Her stomach still didn't feel that great, but she didn't want to worry Jane too much.
 
 ![](12-22-16_6-28-03%C2%A0PM.png)
 

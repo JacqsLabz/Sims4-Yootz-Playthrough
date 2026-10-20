@@ -63,12 +63,14 @@ Sara couldn't even get the words out to explain it to Jane.
 
 ![](12-21-17_2-27-33%C2%A0PM.png)
 
-There weren't words as they wepped in Emma's bedroom.
+There weren't words as they wept in Emma's bedroom.
 
 ![](12-21-17_2-27-27%C2%A0PM.png)
 
-That is until, "I think I have an idea... I think we can get her back." Sara said.
+That is until, "I think I have an idea... I think we can get her back." Sara felt almost as if the darkness itself had put the idea in her mind. 
 
 "Sara, this is hard enough without talk like that... please.. I think I need to be alone."
 
-Sara knew Jane wasn't as in touch with death, she could feel it. So, she did as Jane asked, and left her wife to sort things out by herself. 
+While they were both vampires, Sara was far more attuned to their dark power, and to things like death itself. Whereas Jane could barely channel any darkness at all, and had never truly embraced it, preferring to be more like a human. 
+
+Sara knew Jane wasn't as in touch with the mortal vale, she could sense it. So, Sara nodded, "I'm here if need me, I love you." and did as Jane asked. 
