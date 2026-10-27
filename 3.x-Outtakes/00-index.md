@@ -8,7 +8,7 @@ I'm not sure rather Emma should be able to lift Sara like that,
 ![](05-25-22_9-10-00%C2%A0PM.png)
 but it amused me when Sara started saying "chug, chug, chug" in simish while lifting Emma up. (cuz Emma didn't say anything while lifting up Sara) 
 
-![](05-25-22_9-13-51%20PM.png)
+![](05-25-22_9-13-51%C2%A0PM.png)
 I present the definition of maturity. 
 
 ![](05-25-22_8-41-54%C2%A0PM.png)
@@ -35,7 +35,7 @@ you're wearing snow boots..... srsly??
 ![](06-02-18_12-31-06%C2%A0PM.png)
 Just a family of vampires chilling
 
-![](06-03-18_6-37-54%20AM.png)
+![](06-03-18_6-37-54%C2%A0AM.png)
 Who needs shoes? 
 
 Sara: exactly, I'm not in the hot spring. 
@@ -52,10 +52,10 @@ I have no words. No words. You better not come back knocked up.....
 ![](06-20-18_11-34-20%C2%A0PM.png)
 Lol, floating cards. I really need to get a mod that fixes their reflections. 
 
-![](05-20-22_4-08-48%20AM.png)
+![](05-20-22_4-08-48%C2%A0AM.png)
 Comfy there? Ug, this house glitches too much. 
 
-![](05-25-22_10-57-05%20AM.png)
+![](05-25-22_10-57-05%C2%A0AM.png)
 Contacted the beyond yet Emma? 
 
 
@@ -74,12 +74,12 @@ And now, a cut scene/moment:
 "Child, it is not for me to speak of," the unearthly tone came from his hood, "it is not for mortal minds to know."
 
 "I'm not a mortal, I'm a vampire. And you already came for me once. Can't you give me some idea, at least rather it will happen in the next few days." She opened her eyes and didn't hide her fear. "Please." she blink away a tear. "I keep feeling sicker and sicker..."
-![](06-19-18_11-49-42%20PM.png)The Reaper put his arms around her. "I can not say how long until I come for anyone, child." He dropped into a faint, whisper-like volume Emma could hardly hear, "But, I can say that this thing which you fear, it does not draw your soul to me."
+![](06-19-18_11-49-42%C2%A0PM.png)The Reaper put his arms around her. "I can not say how long until I come for anyone, child." He dropped into a faint, whisper-like volume Emma could hardly hear, "But, I can say that this thing which you fear, it does not draw your soul to me."
 
 ----
 
-![](06-20-18_12-14-34%20AM.png)
+![](06-20-18_12-14-34%C2%A0AM.png)
 
 Oh good, Emma's not the only 'classy' one. 
 
-![](06-20-18_12-59-17%20AM.png)
+![](06-20-18_12-59-17%C2%A0AM.png)
