@@ -3,6 +3,6 @@ Sometimes very wacky silly funny things/glitches happen, and I'm going to use "o
 
 ----
 
-![](12-23-16_1-27-05%20PM.png)
+![](12-23-16_1-27-05%C2%A0PM.png)
 Yes, drink the air Sara. 
 
